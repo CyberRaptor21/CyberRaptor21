@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... I don't know what that means? 
 - 📫 How to reach me EMAIL but its PERSONAL info
 - 😄 Pronouns: sigma, skibidy. oh is "skibidy" a pronoun
-- ⚡ Fun fact: I hate root beer and have a Charizard Vmax. No cap!
+- ⚡ Fun fact: I hate root beer. No cap!
 
 <!---
 CyberRaptor21/CyberRaptor21 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
